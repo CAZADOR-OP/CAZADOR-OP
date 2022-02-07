@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @CAZADOR-OP
-- 👀 I’m interested in creating high level ai
-- 🌱 I’m currently learning C and Java
-- 💞️ I’m looking to collaborate on telegram based projects
-- 📫 How to reach me 9315431144
+### HI I AM CAZADOR
+
+YOU GUYS CAN REACH ME ON [TELEGRAMM](HTTPS://T.ME//CAZADOR_OP) .
+
+I AM CURRENTLY WORKING FOR [THE BROTHERHOOD COUNCIL](HTTPSB://T.ME//THE_BROTHERHOOD_COUNCIL)
+
